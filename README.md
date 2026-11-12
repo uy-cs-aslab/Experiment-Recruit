@@ -1,4 +1,5 @@
 # English Speech Recording Experiment
 
-The website for registering for the experiment will open at 5:00 p.m. on Thursday, November 12.
-<<< Please check this board regularly for updates >>>
+Please access the link below to register!
+
+https://calendly.com/g25tk011-yamanashi/speech-recording-experiment
